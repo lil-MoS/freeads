@@ -1,1 +1,1 @@
-[ورود به بات](https://github.com/lil-MoS/freeads)
+[ورود به بات](https://github.io/lil-MoS/freeads)
